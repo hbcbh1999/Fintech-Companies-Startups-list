@@ -5,3 +5,4 @@ Most importantly along the way I've also created Fintech CEOs contact list and i
 
 Enjoy this and Have a great day.
     
+<strong>1. <a href="https://www.kickstarter.com/>Kickstarter</a></strong><br>
